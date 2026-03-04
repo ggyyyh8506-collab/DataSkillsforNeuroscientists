@@ -13,4 +13,10 @@
 11) Alexey Martynenko
 12) Jieun Yum 
 13) Jim Zhao
-14) Yihe Yu
+14) Ekin Aluf
+15) Nicolo Marcello :)
+16) Yue Yu
+17) Joy Zhu
+18) Cobb Liang
+19) Meryem Irem Cinakli
+20) Yihe Yu
